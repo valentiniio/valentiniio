@@ -1,0 +1,7 @@
+- hiii! i'm val! :P
+- i’m interested in vulture culture, emoji tings, DnD, LARP, gyaru and goth!
+- i’m currently learning how to make proper minecraft skins! :3
+- i’m looking to collaborate on oc lore
+- how to reach me; dm me on I Don't Get Paid Enough (discord)
+- (ﾉ◕ヮ◕)ﾉ*:･ﾟ✧ pronouns: he/she/they
+- Fun fact: i like zombies and being goth! X3
